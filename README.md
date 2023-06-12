@@ -1,0 +1,2 @@
+# cara-menjadi-dewa
+dewa
